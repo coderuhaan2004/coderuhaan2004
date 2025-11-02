@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Reinforcement Learning<br>
+🌱 I'm Ruhaan Choudhary, B.Tech Undergraduate student at Indian Institute of Technology Ropar<br>
 
 
 ## 🌐 Socials:
